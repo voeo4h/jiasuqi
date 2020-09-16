@@ -10,7 +10,7 @@
 主要有免费试用，所以比较好，能够先体验。话不多说还是自己体验一下吧。
 ```
 
-***下载地址：[加速器下载](https://vipviptv.com/share.html?channel=s3)***
+***下载地址：[加速器下载](https://cjyffmmy.com/share.html?channel=s3)***
 
 ```
 袋鼠加速器最新版是一款能够对大部分的网络游戏进行加速的电脑加速工具，
